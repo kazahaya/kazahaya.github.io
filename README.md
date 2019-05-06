@@ -1,0 +1,1 @@
+# kazahaya.github.io
